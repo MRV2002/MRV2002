@@ -7,11 +7,11 @@
 
 - 📝 I regularly write articles on [https://www.blogger.com/blog/posts/801671638](https://www.blogger.com/blog/posts/801671638)
 
-- 💬 Ask me about **tech, desktops ,smartphones , statics , buisness**
+- 💬 Ask me about **tech,marketing,coding,**
 
 - 📫 How to reach me **vickrammmadhavan2002@gmail.com**
 
-- ⚡ Fun fact **I do keep backup file for my private use**
+- ⚡ Fun fact **I ask AI for project ideas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
